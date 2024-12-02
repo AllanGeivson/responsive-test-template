@@ -1,1 +1,1 @@
-*I do not own the template. replicated fpr test only*
+*I do not own the template. replicated for test only*
